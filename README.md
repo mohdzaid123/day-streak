@@ -7,3 +7,4 @@ ha ha
 
 hehe hehe heheheheheeeheheh
 geggegegegehehehehhe
+red team white team blue team black team
